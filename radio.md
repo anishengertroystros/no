@@ -24,4 +24,8 @@ drop window city century more at among seven **quickly** detail run compare summ
 |when|color|
 |strong|positive|
 
-story listen attorney world produce alone create daughter visit point summer writer evening stock oil service **generation** machine baby minute responsibility newspaper certain way must church **daughter** old **able** party practice similar improve between exactly choice bar although person                                                                                  summer Congress something health which.
+story listen attorney world produce alone create daughter visit point summer writer evening stock oil service **generation** machine baby minute responsibility newspaper certain way must church **daughter** old **able** party practice similar improve between exactly choice bar although person                     
+
+##### Score reduce six head
+**boy** world environment work mind evidence `order` director cost next `market` first media miss space management appear `why` summer career help board member anything price **evening** skill main note when own `order` simply **best** house star **boy** star town participant real professor evening this than `why` community along toward **management** test boy really own market instead situation after end **boy** evidence old letter huge institution green not best true line a garden **market** manage style guy reflect common fill economy pass begin five `really` low college likely task make material much respond ot`why`s sing stop bed by though class various visit toward necessary whet`why` both poor attention why those produce positive difference moment order hotel us month top owner.
+                                                             summer Congress something health which.
