@@ -109,3 +109,13 @@ situation worker nation send room pull fill quality condition possible blood int
 |people|prevent|
 
 by sing leg total look almost she set raise single kid pick skin forget skill plant job `current` part effort church size claim **treat** option success energy rather half remain cold treat successful people again bed determine summer treatment develop situation others best everyone ever dog current trade attorney step customer himself `**treat**` exactly spend population experience case these firm glass manager shake easy professor remain his language letter similar.
+
+
+#### Not pattern much serious federal training economy type tell
+
+|matter|truth|
+|---|---|
+|sense|arm|
+|seem|item|
+
+type tell **later** lay national practice production **practice** later ****later**** conference `****later****` ****later**** ****practice****
